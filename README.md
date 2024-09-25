@@ -1,1 +1,1 @@
-https://avinash-kr02.github.io/travelsite/
+https://shakyakumar01.github.io/travelsite/
